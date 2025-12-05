@@ -1,2 +1,0 @@
-# Kyogre
-ZSSGGOK's blog
